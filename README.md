@@ -1,0 +1,2 @@
+# The-Mission-Social-Media-Competitor-Analysis
+The purpose of this research is to examine The Mission's social media content on Facebook and Instagram, as well as its competitors' Facebook and Instagram content. This analysis aims to identify strengths and weaknesses in The Mission's social media strategy, and discover industry trends. With this information, effective recommendations on how to maximize The Mission's social media presence on Instagram and Facebook will be provided.  
